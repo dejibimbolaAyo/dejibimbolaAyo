@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Ayodeji
+### Hi there 👋 I'm Ayo
 
 [![Linkedin Badge](https://img.shields.io/badge/LinkedIn-Abimbola%20Ayodeji-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/dejibimbolaAyo/)](https://www.linkedin.com/in/dejibimbolaAyo/)
 
